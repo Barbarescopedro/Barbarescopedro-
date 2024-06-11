@@ -1,1 +1,8 @@
-# Barbarescopedro-
+- Barbarescopedro
+- meu nome é Pedro Henrique barbaresco da silva
+- eu tenho 16 anos
+- estudante da ecola Dom Paulo
+- sou do 3°serie do ensino médio
+- moro em Guarulhos,ponte grande no condomínio único
+- sou jogador de futebol e atuo no time ssc Sports
+- e tenho um sonho de ir para o profissional
